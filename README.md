@@ -1,1 +1,0 @@
-projetos de construçao e criaçao de sistemas dentro do minecraft, para melhorar e auxiliar no desempenho do jogo, para quem gosta de criar e armazenar varios itens, ter aldeoes de troca com varias funçoes de trabalho.
